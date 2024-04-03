@@ -17,6 +17,7 @@ Oh? You do? Then you know where to find me.
 * I am very tall.
 * I look older than I am.
 * I like playing video games.
+* I listen to, play, and create music. A lot.
 * I occasionally do research on random things.
 
 <!---
